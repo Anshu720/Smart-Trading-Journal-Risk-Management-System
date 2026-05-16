@@ -1,0 +1,1 @@
+# Smart-Trading-Journal-Risk-Management-System
